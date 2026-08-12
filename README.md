@@ -9,7 +9,7 @@
         <a href="https://devilbite.atabook.org/" > 
           <img width="80" img src="https://file.garden/akV2tpGEwn-CR9eK/stamp%20(1).gif"> 
       </a> &nbsp;&nbsp;&nbsp;
-        <a href="https://rentry.co/devilxbite">
+        <a href="https://soroxas.straw.page">
           <img width="80" img src="https://file.garden/akV2tpGEwn-CR9eK/stamp.gif">
         </sub>
      </a>
