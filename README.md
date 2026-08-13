@@ -6,7 +6,7 @@
 <div align="center" > <sub>
      — ⟢&nbsp; sora.&nbsp;&nbsp;&nbsp;20yo.&nbsp;&nbsp;&nbsp;he / him.<p>
     &nbsp; &nbsp; &nbsp; &nbsp; the keyblade wielder &nbsp; &nbsp; &nbsp; &nbsp;<p>
-        <a href="https://devilbite.atabook.org/" > 
+        <a href="https://soroxas.atabook.org/" > 
           <img width="80" img src="https://file.garden/akV2tpGEwn-CR9eK/stamp%20(1).gif"> 
       </a> &nbsp;&nbsp;&nbsp;
         <a href="https://soroxas.straw.page">
